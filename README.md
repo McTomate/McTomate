@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @McTomate
 - 🤓 My ongoing project is: Completing my vocational training to becoming an IT specialist
 - 🗃️ Past experiences include: Managing a Restaurant, a short lived infantry life, failing two majors in uni
-- 🏁 Future goals are: Working in Cybersecurity, develop a scuffed game in my free time
+- 🏁 Future goals are: Working in Admin, develop a scuffed game in my free time
 - 📫 I can be reached via: Mail
 - 🗣️ Native level: English and German
 - 👶🏻 Toddler level: French, Vietnamese, Japanese
